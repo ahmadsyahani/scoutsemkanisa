@@ -1,1 +1,1 @@
-scout semkanisa
+scout semkanis
